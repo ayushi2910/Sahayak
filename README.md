@@ -1,0 +1,1 @@
+Sahayak – Her Ally in Every Click is a comprehensive women support platform designed to empower and protect. From reporting issues to accessing helplines, blogs, and NGO support, Sahayak ensures safety, awareness, and solidarity with just a click.
